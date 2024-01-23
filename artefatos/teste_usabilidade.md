@@ -1,0 +1,1 @@
+A equipe realizou testes de usabilidade mas eles não estão sendo divulgados nesta versão pública para proteger os dados privados dos participantes.
